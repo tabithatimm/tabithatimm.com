@@ -1,1 +1,1 @@
-# tabithatimm.github.io
+# tabithatimm.com
